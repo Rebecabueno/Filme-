@@ -11,4 +11,4 @@ Cada memória base é organizada de modo a moldar um aspecto da personalidade da
  <p3>Através da animação, de forma metafórica, entendemos como se dá o nosso funcionamento interno: o trem do pensamento, o depósito de memória, as emoções complementares que se revezam ao longo das várias fases da vida.</p3>
 Assistimos em Riley um pouco do que se passa dentro de cada um de nós e, ao <p3>Observarmos a pequena garotinha, percebemos como também nós reagimos as situações desafiadoras que atravessam o nosso cotidiano .
 <IMG src="d5ffaa82-72d7-466f-95b5-534b7db8e5ad.jpeg">.
-<h1>Resumo do segundo filme de divertida-mente</h1>
+
